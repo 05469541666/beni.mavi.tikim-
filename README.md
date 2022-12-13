@@ -1,0 +1,2 @@
+# beni.mavi.tikim-
+İstiyorum 
